@@ -34,8 +34,8 @@ Exploring ways to apply research from the lab directly into clinical settings to
 
 I'm always open to connecting with like-minded individuals or teams looking for someone who thrives in fast-paced, technical environments. Feel free to reach out to me if you're interested in collaborating or discussing opportunities.
 
-- **LinkedIn**: [Linkedin](https://www.linkedin.com/in/casey-cha/)
-- **Email**: [Email](mailto:cha.casey12@gmail.com)
+- **LinkedIn**: [https://www.linkedin.com/in/casey-cha/](https://www.linkedin.com/in/casey-cha/)
+- **Email**: [cha.casey12@gmail.com](mailto:cha.casey12@gmail.com)
 
 Thanks for stopping by! 🚀
 
